@@ -1,1 +1,1 @@
-View created from b1
+View created from bXXXXXXXXXXXXXXXXXXX
